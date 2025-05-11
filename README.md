@@ -52,7 +52,7 @@
 
 ## Social Media & Platforms
 
-* [X (formerly Twitter) Pro](https://pro.x.com): Likely refers to advanced features or analytics for the X platform.
+* [X (formerly Twitter) Pro](https://pro.x.com): X Pro, a must have.
 
 ## Utilities & Tools
 
